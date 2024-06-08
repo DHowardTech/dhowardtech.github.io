@@ -1,2 +1,0 @@
-# dhowardtech.github.io
- Porfolio
